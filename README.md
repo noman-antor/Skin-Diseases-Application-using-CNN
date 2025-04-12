@@ -1,0 +1,1 @@
+- Please click [here](https://drive.google.com/drive/folders/1ynKo7mRkNR-Uh9W8Kiq-xWcesYR0NVnm?usp=drive_link) to access the application's visual content.
